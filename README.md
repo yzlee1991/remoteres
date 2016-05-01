@@ -14,10 +14,3 @@
 
 8888888
 
-
-000000000
-
-
-sdafasdf
-
-aaaaaaaaaaaaaaaaaaaaa
